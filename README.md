@@ -27,7 +27,7 @@
 ---
 ### 👩‍💻 About Me :
     
-- telegram: @wqosixux
+- telegram: @wqosixux (https://t.me/wqosixux)
 - mail: 19nk17@gmail.com
 ---
 ### :fire: My Stats :
