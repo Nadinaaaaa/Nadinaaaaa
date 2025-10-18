@@ -25,7 +25,7 @@
 </div>
 
 ---
-### 👩‍💻 About Me :
+### ✉️Contact :
     
 - telegram: @wqosixux (https://t.me/wqosixux)
 - mail: 19nk17@gmail.com
